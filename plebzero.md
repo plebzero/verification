@@ -46,3 +46,6 @@ UXwlwY8=
 =+LNd
 -----END PGP PUBLIC KEY BLOCK-----
 ```
+
+Minhas redes sociais:
+- https://twitter.com/PlebZero
